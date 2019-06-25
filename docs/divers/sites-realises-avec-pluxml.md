@@ -15,6 +15,7 @@
 * Facturation paramédicale : [http://www.facturationparamedicale.com/](http://www.facturationparamedicale.com/)
 * Art et tradition de la pierre : [http://www.art-tradition-pierre.com/](http://www.art-tradition-pierre.com/)
 * Les Médusés de Gorgopolitis : [https://www.les-meduses.fr/](https://www.les-meduses.fr/)
+* Elloa Socio-Esthétique : [https://elloa-socio-esthetique17.fr/](https://elloa-socio-esthetique17.fr/)
 
 ## Sites personnels
 
@@ -40,6 +41,7 @@
 * Ludicitude (divers petits jeux de société) : [http://ludicitude.fr](http://ludicitude.fr)
 * Gasp - projet musical : [https://gasp.tomekmusic.net/](https://gasp.tomekmusic.net/)
 * Frenchvadrouilleur - Blog photo voyages : [https://frenchvadrouilleur.fr](https://frenchvadrouilleur.fr)
+* Le Blog d'Unkorneglosk : [https://www.unkorneglosk.fr/](https://www.unkorneglosk.fr/)
 
 ## Sites institutionnels
 
